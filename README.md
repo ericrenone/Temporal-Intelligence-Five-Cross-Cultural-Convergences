@@ -1,0 +1,1 @@
+# Temporal-Intelligence-Five-Cross-Cultural-Convergences
